@@ -53,6 +53,7 @@
 - [ضیا صدر](https://www.ziyasadr.com/)   
 - [عباس اویسی](https://abbas.oveissi.ir/)
 - [عسل راد](http://asalrad.com/)
+-  [علی حسین‌زاده](https://virgool.io/@mrali)
 - [علی مولایی](https://molaei.org/)
 - [علی نعمتی شهاب](http://gozareha.com/)
 - [علیرضا امیرصمیمی](http://amirsamimi.ir/)
